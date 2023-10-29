@@ -1,1 +1,0 @@
-# scoooutdroid.github.io
